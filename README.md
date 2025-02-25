@@ -1,0 +1,5 @@
+- 👋 Hallo saya @leo90-ops
+- 👀 Saya sangat Tertarik dengan coding
+- 🌱 Saya sekarang sedang belajar coding
+- 💞️ Saya sangat ingin berkolaborasi dengan siapa saja
+- 📫 Kalian Bisa Menghubungi saya lewat link akun media sosial yang saya bagikan
