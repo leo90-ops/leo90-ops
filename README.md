@@ -1,4 +1,4 @@
-- 👋 Hallo saya @leo90-ops
+- 👋 Hallo saya Lionel
 - 👀 Saya sangat Tertarik dengan coding
 - 🌱 Saya sekarang sedang belajar coding
 - 💞️ Saya sangat ingin berkolaborasi dengan siapa saja
